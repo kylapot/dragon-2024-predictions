@@ -5,9 +5,9 @@
 
 ![img](https://cdn.i-scmp.com/sites/default/files/d8/images/canvas/2024/01/11/ad9ace7b-60f6-4ccf-9246-68d5a16fad3f_1a2ba535.jpg)
 
-- **Lucky numbers:**_ 2, 7; 
-- **lucky colour:**_ white; 
-- **lucky element:** rose gold
+- _**Lucky numbers:**_ 2, 7; 
+- _**lucky colour:**_ white; 
+- _**lucky element:** rose gold
 
 Dragons offend two different tai sui this year, so be prepared for a few bumps ahead.
 
