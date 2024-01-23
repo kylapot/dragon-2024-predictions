@@ -7,7 +7,7 @@
 
 - _**Lucky numbers:**_ 2, 7; 
 - _**lucky colour:**_ white; 
-- _**lucky element:** rose gold
+- _ **lucky element:** rose gold
 
 Dragons offend two different tai sui this year, so be prepared for a few bumps ahead.
 
